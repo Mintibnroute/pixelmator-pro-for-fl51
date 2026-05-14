@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Pixelmator Pro for macOS plugin with premium Plugin for Pixelmator Pro for macOS - grid systems and export presets. Featuring grid systems and export presets,
 
 
 
